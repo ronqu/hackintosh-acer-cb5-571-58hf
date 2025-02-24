@@ -1,0 +1,1 @@
+# hackintosh-acer-cb5-571-58hf
